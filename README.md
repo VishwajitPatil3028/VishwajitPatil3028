@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **vishvajeet301101@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFob5ho4e4/Kj3W1k84zM-vJVo6rzPQ0g/edit?utm_content=DAFob5ho4e4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFob5ho4e4/Kj3W1k84zM-vJVo6rzPQ0g/edit?utm_content=DAFob5ho4e4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [Resume](https://www.canva.com/design/DAFob5ho4e4/Kj3W1k84zM-vJVo6rzPQ0g/edit?utm_content=DAFob5ho4e4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
